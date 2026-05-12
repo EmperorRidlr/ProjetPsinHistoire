@@ -1,0 +1,9 @@
+# Vous me faites peur…
+
+Pourquoi… Comment… je… Je ne sais pas quoi dire… Le roi vous a-t-il vraiment choisi ? 
+C’est horrible… Et je suis supposé continuer à narrer l’aventure comme si de rien n’était… 
+Vous… Vous continuez votre chemin… La conscience tranquille on ne sait pas comment…
+
+Quoi qu’il en soit, vous continuez à marcher.
+
+-  [Qui sera la prochaine personne que je vais mener à sa perte…](Page16RencontreFille.md)
